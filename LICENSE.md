@@ -1,4 +1,4 @@
-
+rivals premium Script fly plus undetectable offers the most advanced rivals Script, with fly and undetectable. Perfect for dominating any match.
 
 
 ---
